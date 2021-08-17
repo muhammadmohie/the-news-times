@@ -1,1 +1,1 @@
-# the-news-times
+# The News Times
